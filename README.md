@@ -15,24 +15,16 @@ my pronouns are **he/they** !, *i dont mind and dont care if you use anything el
 
 
 my favourite characters are (bold ones are TOP FAVS heh.):
-
-**Sakura** (windbreaker)
-
-**Kaworu** (evangelion)
-
-**Rinne** (enstars)
-
-**X** (reverse 1999)
-
-nine (bfdi)
-
-**levi**, jean, eren. (aot)
-
-**Wriothesley** (genshin)
-
-nagi (bluelock)
-
-**sabo** (one piece)
+***setsuna f seiei*** (the gundam) [very high respect and love to him cuz hes the only kurdish chara <3],
+**Sakura** (windbreaker),
+**Kaworu** (evangelion),
+**Rinne** (enstars),
+**X** (reverse 1999),
+nine (bfdi),
+**levi**, jean, eren. (aot),
+**Wriothesley** (genshin),
+nagi (bluelock).
+**sabo** (one piece),
 
 and more!
 
