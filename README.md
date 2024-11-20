@@ -1,25 +1,12 @@
-[hgg] whispers: gays are for strays 
+
+
+remaking everythijg once i have time
+
+
+
 
 ---
 
-guys i will make a grahpic soon truets and start being a urls + rentries owner agaian
-
---- 
-
-i go by many names, ***preferably*** **kaizen - lennox - or rinze**.  , **you can nickname me anything i love nicknames, *i adore 'em !<3***
-
-my pronouns are **he/they** !, *i dont mind and dont care if you use anything else when you didnt know.*
-
-*keep in mind* im **14** . 18+ iwec.
-
-
-
-c+h always allowed, even if dni, just may not say anything, i love c+h !
-
-I ❤️ gifted and matching skins. ladies ❤️
-
-
----
 **LINKS [that u can sign >_<]**:
 
  [sign atabook!](https://callmeyourangel.atabook.org/)
